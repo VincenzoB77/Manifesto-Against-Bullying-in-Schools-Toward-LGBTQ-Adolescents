@@ -332,6 +332,7 @@ School is the first political space in an individual’s life. It is the place w
 Homophobic and transphobic bullying is not deviant behavior: it is a form of structural violence that reflects and reproduces the cultural hierarchies of society. It is a device of control that operates through the stigmatization of identity, the surveillance of the body, and the punishment of difference. Every insult, every laugh, every exclusion is a political act that communicates: “You do not belong to the order we have established.”
 
 Clinical evidence shows that this violence produces effects equivalent to forms of early relational trauma: emotional dysregulation, hypervigilance, compromised school functioning, depressive symptoms, suicidal ideation, and identity fragmentation. This is not individual fragility, but a physiological response to an environment that does not guarantee psychological safety. The suffering of LGBTQ+ adolescents is not a private matter: it is an indicator of the democratic health of a community.
+
 School, as an institution, is not neutral. It produces culture, transmits norms, defines what is legitimate and what is deviant. When school does not intervene, minimizes, ignores, or delegates, it is not simply failing: it is politically complicit. Institutional silence is a form of symbolic violence that legitimizes discrimination and protects aggressors.
 
 Protecting LGBTQ+ adolescents is not a matter of sensitivity: it is a matter of rights. A matter of public health. A matter of social justice. A matter of political responsibility. 
