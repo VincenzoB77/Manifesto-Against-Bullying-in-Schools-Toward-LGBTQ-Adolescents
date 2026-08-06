@@ -299,6 +299,39 @@ Clinically, this condition produces effects recognized in the literature as equi
 
 The LGBTQ+ adolescent does not suffer only direct violence: they suffer the violence of silence. The silence of adults, peers, institutions. The silence that transforms suffering into guilt, fear into normality, diversity into error. The silence that says: “Do not disturb the order.” But an order that demands silence is an order that protects violence.
 
+School, as a micro‑society, reproduces broader cultural models: heteronormativity as an implicit rule, the rigidity of gender roles, the punishment of deviation, and the construction of identity through exclusion. LGBTQ+ bullying is not merely an individual behavior: it is a collective ritual that serves to confirm who is “inside” and who is “outside.” It is a mechanism of social control that uses suffering as the glue of the group.
+
+For this reason, every intervention must begin with a fundamental principle: the protection of LGBTQ+ adolescents is not an act of kindness, but a clinical, educational, and cultural duty.
+
+School must become a place where identity is not negotiated but recognized; where difference is not tolerated but valued; where psychological safety is not a privilege but a right. School must be the first space in which culture changes.
+
+A manifesto against LGBTQ+ bullying cannot limit itself to asking for respect: it must demand transformation. Transformation of language, practices, implicit norms, and informal hierarchies. Transformation of the way adults look at adolescents, and the way adolescents learn to look at themselves.
+
+This manifesto affirms that:
+
+• The dignity of LGBTQ+ adolescents is inviolable.
+
+• Homophobic and transphobic violence is a form of trauma and must be treated as such.
+
+• Institutional silence is complicity.
+
+• School is responsible for the cultural climate it produces.
+
+• Identity diversity is an anthropological resource, not a deviation.
+
+• Every adolescent has the right to grow without fear.
+
+The protection of LGBTQ+ adolescents is not a minority battle: it is a battle for civilization. A civilization is measured by its ability to protect those most exposed, not by its ability to celebrate those most conforming.
+
+This manifesto does not ask that LGBTQ+ adolescents be accepted. It asks that they be recognized. It does not ask that they be defended. It asks that they be heard. It does not ask that they be tolerated. It asks that they be freed from fear.
+
+Because fear is not a destiny. It is a cultural construction. And everything that is cultural can be changed.
+
+School is the first political space in an individual’s life. It is the place where one learns not only grammar, but citizenship; not only mathematics, but coexistence; not only history, but the possibility of existing. When an LGBTQ+ adolescent is bullied, they are not struck only as a person: they are struck as a political subject, as a body representing a minority, as an identity that challenges dominant norms.
+
+Homophobic and transphobic bullying is not deviant behavior: it is a form of structural violence that reflects and reproduces the cultural hierarchies of society. It is a device of control that operates through the stigmatization of identity, the surveillance of the body, and the punishment of difference. Every insult, every laugh, every exclusion is a political act that communicates: “You do not belong to the order we have established.”
+
+Clinical evidence shows that this violence produces effects equivalent to forms of early relational trauma: emotional dysregulation, hypervigilance, compromised school functioning, depressive symptoms, suicidal ideation, and identity fragmentation. This is not individual fragility, but a physiological response to an environment that does not guarantee psychological safety. The suffering of LGBTQ+ adolescents is not a private matter: it is an indicator of the democratic health of a community.
 School, as an institution, is not neutral. It produces culture, transmits norms, defines what is legitimate and what is deviant. When school does not intervene, minimizes, ignores, or delegates, it is not simply failing: it is politically complicit. Institutional silence is a form of symbolic violence that legitimizes discrimination and protects aggressors.
 
 Protecting LGBTQ+ adolescents is not a matter of sensitivity: it is a matter of rights. A matter of public health. A matter of social justice. A matter of political responsibility. 
